@@ -1,4 +1,4 @@
-
+anime vanguards ultimate Script is the best anime vanguards Script, featuring auto-collect and one-hit kill. Safe and powerful for all your needs.
 
 
 
